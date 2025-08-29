@@ -1,0 +1,1 @@
+In urban areas like Kingston and Montego Bay where parking and enforcement are everyday issues, Park It can improve efficiency, reduce stress, and add a layer of transparency between motorists and municipal authorities.
